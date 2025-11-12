@@ -19,17 +19,16 @@ Social media was quickly filled with breathtaking images of **snow-covered maple
 From **Vermont’s golden forests dusted in white** to **Chicago’s early morning frost**, the blend of seasons made for unforgettable scenes.
 
 ---
-
 ## 📸 Trending Photos Across the Internet
 Photos tagged with **#FirstSnow**, **#FrostyFall**, and **#WinterIsComing** have gone viral, with thousands of users sharing snapshots of their yards and city streets. Many praised the beauty of the season’s transition — a reminder that nature’s timing is unpredictable, but always spectacular.
 
-Go to official news website page :
-(https://multitools-ami.blogspot.com)
+- [Go to official news website page](https://multitools-ami.blogspot.com)
 
 Here are some photo collections you can explore:  
 - [CNN Photo Highlights of First Snow](https://multitools-ami.blogspot.com)
-- [The Weather Channel: Snowfall Gallery]
-- (https://multitools-ami.blogspot.com)
+
+- - [The Weather Channel: Snowfall Gallery](https://multitools-ami.blogspot.com)
+
 
 ---
 
