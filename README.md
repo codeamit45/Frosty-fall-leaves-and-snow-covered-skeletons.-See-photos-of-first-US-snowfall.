@@ -27,9 +27,11 @@ Go to official news website page :
 (https://multitools-ami.blogspot.com)
 
 Here are some photo collections you can explore:  
-- [Google Images: “First US Snowfall 2025”](https://www.google.com/search?q=first+US+snowfall+2025&tbm=isch)  
-- [CNN Photo Highlights of First Snow](https://www.cnn.com)  
-- [The Weather Channel: Snowfall Gallery](https://weather.com/photos)
+- [Google Images: “First US Snowfall 2025”]
+-   (https://multitools-ami.blogspot.com)
+- [CNN Photo Highlights of First Snow](https://multitools-ami.blogspot.com)
+- [The Weather Channel: Snowfall Gallery]
+- (https://multitools-ami.blogspot.com)
 
 ---
 
